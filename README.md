@@ -1,0 +1,1 @@
+GİT ÖGRENMEK İÇİN OLUŞTURDUM
